@@ -1,4 +1,4 @@
-# Flower Show -2022, Raj Bhawan, Dehradun
+# Flower Show 2022, Raj Bhawan, Dehradun
 
 **2022-03-08, 09**
 
